@@ -35,7 +35,7 @@ Aspiring Data Analyst. Passionate about transforming data into actionable insigh
 
 ##### Connect with Me
 
-  [LinkedIn](www.linkedin.com/in/yuliya-bradley-247a04212)
+  [LinkedIn]www.linkedin.com/in/yuliyabradley02
 
   
 
